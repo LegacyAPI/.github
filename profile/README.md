@@ -13,5 +13,6 @@
 
 🤖 Para ter acesso e preciso entrar em contato via email ou discord:
 
-E-mail:
-Discord:
+E-mail: srbanyt@gmail.com
+
+Discord: SrBan#2482
