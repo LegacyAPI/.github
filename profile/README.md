@@ -3,7 +3,7 @@
 
 🛠️ Bem vindo a uma organização de Software para o Pocketmine-MP.
 
-❗ESSA ORGANIZAÇÃO E PRIVADA, APENAS COMPRANDO ACESSO PARA TER ACESSO AS APIS.
+❗ ESSA ORGANIZAÇÃO E PRIVADA, APENAS COMPRANDO ACESSO PARA TER ACESSO AS APIS.
 
 ⚠️ No momento a organização tem 2 APIS.
 
